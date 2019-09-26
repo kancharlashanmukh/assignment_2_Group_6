@@ -1,1 +1,1 @@
-# assignment_2_Group_6
+# assignments
